@@ -7,8 +7,8 @@ Vom Einfamilienhaus zum Reihenhaus, vom Fertighaus über den Bungalow bis zum Ma
 ## MUSTERHAUS.NET WIRD BETRIEBEN UND HERAUSGEGEBEN VON DER:
 
 Musterhaus.net IPB GmbH  
-Uelzener Straße 107  
-D – 21335 Lüneburg
+Vor dem Bardowicker Tore 6b
+D-21339 Lüneburg
 
 Telefon: 04131 / 29885 – 0  
 Telefax: 04131 / 29885 – 22
